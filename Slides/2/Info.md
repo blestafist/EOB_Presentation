@@ -1,5 +1,0 @@
-- Słowo „sekta" pochodzi z łaciny: _sequi_ — podążać za kimś, oraz _secare_ — odcinać, oddzielać. Obie etymologie są trafne.
-- W socjologii unika się dziś słowa „sekta" — zamiast tego mówi się o **nowych ruchach religijnych** lub **grupach destrukcyjnych**.
-- Kluczowa różnica nie leży w przekonaniach religijnych, lecz w **metodach działania**: czy grupa szanuje wolność i godność człowieka, czy je niszczy.
-- Przykład dobry do użycia: _Protestanci byli kiedyś nazywani sektą przez Kościół katolicki_ — to pokazuje, że sam termin jest względny. Ważne jest zachowanie grupy, nie jej teologia.
-- Wg badań ponad 75% Polaków uważa sekty za poważne zagrożenie społeczne.
