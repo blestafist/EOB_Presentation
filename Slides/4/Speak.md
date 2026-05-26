@@ -1,9 +1,7 @@
-**Tekst do mówienia:**
+Ludzie sądzą, że to się ich nie może dotyczyć. Ale sekty nie szukają ofiar — grają na tym, co każdy potrzebuje: akceptacji, bliskości, sensu.
 
-Wiele osób myśli: _„mnie to nie dotyczy, jestem za mądry/a"_. Ale psychologowie są zgodni: nie ma jednego „typu ofiary". Do sekt trafiają też ludzie wykształceni, inteligentni, z ułożonym życiem. Co więcej — samo przekonanie „mnie to nie dotyczy" może być czynnikiem ryzyka, bo zmniejsza czujność.
+Do sekt trafiają różni ludzie — zarówno mniej jak i bardziej wykształceni. Dzieje się to zwłaszcza w trudnych momentach: śmierć bliskiej osoby, rozstanie, strata pracy. Jeśli jesteś w takim momencie, możesz być bardziej otwarty/a na pomoc od kogokolwiek, kto ją oferuje.
 
-Dlaczego tak się dzieje? Bo sekty nie grają na głupocie — grają na potrzebach. Każdy potrzebuje akceptacji, poczucia bliskości, sensu i odpowiedzi na trudne pytania. Psychologowie nazywają to potrzebami podstawowymi. I dokładnie to sekty oferują — przynajmniej na początku.
+Sekty mają na to przepis: **love bombing**. Przychodzisz na spotkanie — wszyscy się uśmiechają, mówią, jaki/a jesteś wyjątkowy/a. To działa, bo chęć bycia uznanym jest czymś zupełnie normalnym. A dzisiaj werbowanie zaczyna się online: social media, Discord, Telegram, ale o tym będzie później w prezentacji
 
-Szczególnie narażone są osoby w trudnym momencie: śmierć kogoś bliskiego, rozstanie, przeprowadzka, utrata pracy. Kiedy jesteś osłabiony, łatwiej przyjmujesz pomoc od kogokolwiek, kto ją oferuje.
-
-Główne narzędzie to **love bombing**. Przychodzisz na spotkanie, a tam wszyscy się uśmiechają, mówią, jaki/a jesteś wyjątkowy/a. To działa — potrzeba uznania jest czymś zupełnie ludzkim. Warto wiedzieć, że dziś werbowanie często zaczyna się online — przez social media, Discord czy Telegram.
+Im więcej w to zainwestujesz, tym trudniej się z tego wycofać. Każdy chce wierzyć, że nie popełnił błędu, i dlatego ludzie zostają w sektach.

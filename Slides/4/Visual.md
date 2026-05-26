@@ -1,14 +1,11 @@
-Титул:
-Dlaczego ludzie trafiają do sekt?
+Титул: **Dlaczego ludzie trafiają do sekt?**
 
-Основной текст
-Główne przyczyny trafiania ludzi do sekt:
+→ Основное:
+
+Główne przyczyny:
 
 - Chęć przynależności
 - Kryzysy życiowe
-- Poszukiwanie sensu
-- Potrzeba bezpieczeństwa
+- Potrzeba sensu i bezpieczeństwa
 
-Картинки докину возможные рядом
-1.jpg → Картинка Love Bombing (так называемый "прогрев" человека)
-2.jpeg → Хз просто картинка грустного человечка в толпе, но мне лично первое больше нравится
+Картинки в папке рядом лежат, одна из них это "Love bombing", вторая это просто человек в толпе типа я никому не ужин и тд
