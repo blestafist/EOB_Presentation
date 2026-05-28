@@ -1,0 +1,3 @@
+-Trauma bonding (traumatyczna więź): mechanizm silnego przywiązania emocjonalnego do grupy lub lidera, który jednocześnie krzywdzi ofiarę (podobnie jak w związkach przemocowych).
+-Proces wyjścia z sekty składa się z faz: kryzys zaufania, szukanie informacji z zewnątrz, decyzja, fizyczne odejście i wieloletnia terapia odbudowy tożsamości.
+-Bariery materialne: sekty celowo przejmują oszczędności, nieruchomości i dokumenty tożsamości członków, aby uniemożliwić im ucieczkę

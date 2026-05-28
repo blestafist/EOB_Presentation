@@ -1,0 +1,4 @@
+-Słowo „guru” pochodzi z sanskrytu i oznacza nauczyciela lub przewodnika duchowego.
+-Wielu liderów sekt przejawia narcystyczne zaburzenie osobowości (przekonanie o własnej wyjątkowości, brak empatii, żądza władzy i ciągłego podziwu).
+-Syndrom sekty: stan, w którym u członków grupy dochodzi do zniszczenia samodzielnej osobowości i całkowitej zależności od decyzji lidera.
+-Liderzy celowo izolują wyznawców od świata, ponieważ kontakt z rodziną mógłby podważyć ich autorytet

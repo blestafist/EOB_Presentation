@@ -1,0 +1,5 @@
+-Model BITE (Steven Hassan): B — Behavior control (kontrola zachowań), I — Information control (kontrola informacji), T — Thought control (kontrola myśli), E — Emotional control (kontrola emocji).
+-Jonestown (1978) — sekta Świątynia Ludu, lider Jim Jones. 913 osób popełniło masowe samobójstwo (w tym ponad 200 dzieci) pijąc truciznę.
+-Waco (1993) — sekta Gałąź Dawidowa (Branch Davidians), lider David Koresh. Oblężenie federalne zakończone pożarem, zginęło 76 osób.
+-Typy sekt: nie tylko religijne. Są też ekonomiczne (piramidy finansowe, niektóre MLM), polityczne i terapeutyczne.
+-W Polsce działa od kilkudziesięciu do około 300 grup o charakterze sekt.
