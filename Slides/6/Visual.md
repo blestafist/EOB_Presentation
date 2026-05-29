@@ -9,10 +9,10 @@ Główne motywy założycieli:
 - Narcyzm — przekonanie o własnej wyjątkowości
 - Sława — potrzeba podziwu i uwielbienia
 
-**Kto to są ci liderzy?**
+**Kim są liderzy sekt?**
 
-Nie zawsze „złe osoby od początku". Często: byli artyści, muzycy, sportowcy przyzwyczajeni do sceny.
+Nie zawsze to są „złe osoby od początku". Często: byli artyści, muzycy, sportowcy przyzwyczajeni do sceny.
 
-Połączenie: **Prawdziwa wiara + Narcyzm = Niebezpieczna kombinacja**
 
-Obrazek: 1.jpg — spiker nad tłumem
+
+Картинка: 1.jpg — человек возвышается над толпой
