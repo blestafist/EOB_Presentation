@@ -1,5 +1,5 @@
 Teraz przejdziemy do tematu prawnego: gdzie kończy się wolność religijna, a zaczyna naruszanie praw człowieka? Europejska Konwencja Praw Człowieka gwarantuje każdemu z nas wolność wyznania, ale to prawo działa w dwie strony – oznacza też wolność do zmiany zdania i bezkarnego odejścia z grupy.
 
-Sekty całkowicie to ignorują. Przy próbie odejścia stosują szantaż emocjonalny, zastraszanie albo grożą całkowitym odcięciem od rodziny. Oprócz tego łamią prawo do informacji, bo zakazują czytania niezależnych źródeł, co jest czystą cenzurą. Dochodzi też do łamania godności poprzez wyzysk finansowy, a w przypadku dzieci – odmawiania im podstawowego leczenia, na przykład transfuzji krwi.
+Sekty całkowicie to ignorują. Przy próbie odejścia stosują szantaż emocjonalny, zastraszanie albo grożą całkowitym odcięciem od rodziny. Oprócz tego łamią prawo do informacji, bo zakazują czytania niezależnych źródeł, co jest czystą cenzurą. Dochodzi też do łamania godności poprzez wyzysk finansowy, a w przypadku dzieci – w przypadku dzieci – odmawiania im podstawowego leczenia lub edukacji.
 
 Dlaczego państwo po prostu nie zakaże działalności sekt? W demokratycznym kraju nie można nikomu zakazać wierzyć w to, co chce. Służby mogą reagować dopiero wtedy, gdy dochodzi do konkretnych przestępstw: oszustw, wyzysku czy przemocy.

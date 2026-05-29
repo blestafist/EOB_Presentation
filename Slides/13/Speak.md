@@ -1,0 +1,5 @@
+Jednym z najsilniejszych narzędzi kontroli w sektach jest strach, a nic nie przeraża bardziej niż wizja końca świata. Sekty apokaliptyczne budują całą swoją działalność na strachu przed bliską katastrofą – wojną, plagą czy zderzeniem z asteroidą. Zasada jest prosta: lider ogłasza nadchodzący koniec, ale od razu daje rozwiązanie – przeżyją tylko ci, którzy będą bezwzględnie posłuszni grupie.  
+
+To nie są tylko teoretyczne manipulacje, ale powód ogromnych tragedii. W 1997 roku 39 członków amerykańskiej sekty Heaven's Gate popełniło zbiorowe samobójstwo. Uwierzyli swojemu liderowi, że za kometą Hale'a-Boppa leci statek kosmiczny, a śmierć ciała to jedyny bilet, żeby uciec przed zniszczeniem Ziemi.  
+
+Jeszcze bardziej skrajnym przykładem jest japońska grupa Aum Shinrikyo. Ich lider był przekonany o nadchodzącym Armagedonie i postanowił go przyspieszyć. W 1995 roku sekta przeprowadziła atak terrorystyczny w metrze w Tokio, rozpylając trujący gaz sarin. Zginęło 13 osób, a ponad 6 tysięcy zostało rannych. To pokazuje, że idea końca świata staje się śmiertelnie niebezpieczna, gdy służy do kontrolowania ludzkiego strachu

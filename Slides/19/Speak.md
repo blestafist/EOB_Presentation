@@ -1,0 +1,5 @@
+Przejdźmy teraz do dwóch bardzo współczesnych sekt, które przez lata doskonale maskowały się jako legalnie działające instytucje. Pierwsza z nich to słynna na całym świecie Scjentologia, założona w 1954 roku przez L.Rona Hubbarda
+
+Scjentologia przyciąga ludzi, obietnicą oczyszczenia umysłu poprzez tak zwane audytowania. W rzeczywistości te kursy kosztują dziesiątki tysięcy dolarów, a sekta zbiera podczas nich intymne wyznania, by później szantażować nimi członków próbujących odejść. Najbardziej przerażające są jednak ich wewnętrzne obozy pracy RPF, gdzie nieposłuszni wyznawcy pracują po kilkanaście godzin na dobę i śpią na podłodze.
+
+Druga grupa to NXIVM, która z zewnątrz wyglądała jak ekskluzywna firma oferująca coaching i kursy samorozwoju. Lider grupy Raniere, pod płaszczykiem psychologii stworzył wewnątrz sekty tajną strukturę niewolniczą dla kobiet. Członkinie były głodzone, a nawet brutalnie znakowane rozgrzanym żelazem z inicjałami lidera. Ta iluzja pękła w 2020, gdy Raniere został skazany na sto dwadzieścia lat więzienia za handel ludźmi i wyzysk.

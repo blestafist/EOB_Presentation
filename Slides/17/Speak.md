@@ -1,0 +1,5 @@
+Mówiliśmy już o prawach człowieka i o tym, jak brutalnie są one łamane w sektach. Teraz zobaczymy, jak poszczególne państwa przechodzą do konkretnych działań politycznych i policyjnych, bo podejście rządów na świecie znacznie się różni.
+
+We Francji wprowadzono rewolucyjną ustawę About-Picard, która uznała manipulację psychiczną za przestępstwo karne. Dzięki temu tamtejszy sąd może legalnie zamknąć i całkowicie zlikwidować całą organizację, jeśli udowodni się, że zniewalała ludzi psychicznie.
+
+W Niemczech sprawą zajął się kontrwywiad, który oficjalnie inwigiluje i podsłuchuje Scjentologię, uznając ją za zagrożenie dla demokracji, a jej członkowie mają zakaz pracy w urzędach. W Polsce nie mamy takich ustaw – działamy zwykłym kodeksem karnym, choć już w latach dziewięćdziesiątych Biuro Bezpieczeństwa Narodowego wydało raporty uznające sekty za oficjalne zagrożenie dla kraju.

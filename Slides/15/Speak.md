@@ -1,0 +1,5 @@
+Wyobraźcie sobie, że ktoś z waszych bliskich – brat, siostra albo przyjaciel – trafia do sekty. Pierwsza, intuicyjna reakcja to zazwyczaj złość. Chcecie natychmiast działać i za wszelką cenę udowadniać, że ta grupa to oszustwo. Paradoksalnie, to najgorsze, co możecie zrobić, bo właśnie na to czeka lider sekty.
+
+Werbownicy z góry uprzedzają nowych członków: „Zobaczycie, rodzina was zaatakuje, bo nie rozumie prawdy”. Kiedy zaczynacie krzyczeć, ofiara widzi w tym potwierdzenie słów lidera i jeszcze mocniej odcina się od świata. Zamiast agresji kluczem jest cierpliwość i stały kontakt, żeby pokazać, że wasza relacja wciąż istnieje i sekta kłamała, mówiąc, że bliscy się odwrócą.
+
+W rozmowie najlepiej sprawdza się zadawanie pytań zamiast dawania gotowych odpowiedzi. Pytania typu: „Co czujesz, kiedy ktoś w grupie ma inne zdanie?” powoli zmuszają do samodzielnego myślenia, którego sekty panicznie się boją. Także w Polsce działają specjalne ośrodki gdzie eksperci podpowiadają rodzinom, jak bezpiecznie wyciągnąć człowieka z takiej grupy.

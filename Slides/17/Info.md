@@ -1,0 +1,4 @@
+-Raporty BBN (1995) i MSWiA (2000): pierwsze oficjalne dokumenty rządowe uznające sekty za zagrożenie dla bezpieczeństwa wewnętrznego Polski.
+-Ustawa About-Picard (Francja, 2001): prawo umożliwiające penalizowanie nadużycia słabości wobec członków sekt, w tym poprzez manipulację psychiczną.
+-Nadzór BfV (Niemcy): krajowy kontrwywiad oficjalnie inwigiluje Scjentologię jako organizację wrogą ustrojowi demokratycznemu.
+-Blokada zawodowa: w Niemczech osoby powiązane ze Scjentologią mają ustawowy zakaz pracy w służbie cywilnej i partiach politycznych.

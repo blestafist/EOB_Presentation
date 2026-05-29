@@ -1,0 +1,6 @@
+W historii można znaleźć przykłady, w które na pierwszy rzut oka aż trudno uwierzyć. Pokazują one, jak skrajne i absurdalne idee potrafią całkowicie zawładnąć ludzkim umysłem. Przyjrzymy się dwóm niezwykle wyrazistym przypadkom.
+
+Zaczynamy od Zakonu Świątyni Słońca, który działał w Szwajcarii i Kanadzie. Ta grupa stworzyła przedziwną ideologię, łącząc średniowieczne legendy o templariuszach, astrologię oraz wiarę w UFO. Gdy przepowiednie lidera o końcu świata zawiodły, ogłosił on, że nadszedł czas na tak zwane „zbiorowe przejście do wyższego wymiaru”. W ciągu kilku dni zginęły pięćdziesiąt trzy osoby. Co przerażające, część z nich została po prostu brutalnie zamordowana przez resztę sekty, bo wcale nie chcieli umierać. Ta fala trageditarzała się jeszcze w kolejnych latach.
+
+Drugi przykład to działająca w latach 90 na Lubelszczyźnie polska sekta o nazwie „Niebo”. Jej założyciel, Bogdan Kacmajor, ogłosił się władcą absolutnym: sam zmienił imię na „Nie”, żonę nazwał „Bo”, a swoim dzieciom nadawał imiona tworzące całe zdania, jak na przykład „Niebo Idzie Do Nas Co Dzień”. Kaczmajor straszył ludzi apokalipsą i całkowicie kontrolował ich prywatność. Decydował, kto z kim ma brać ślub, co doprowadzało do przymusowych związków dorosłych z nastolatkami. Grupa była na tyle niebezpieczna, że trafiła do oficjalnego raportu Biura Bezpieczeństwa Narodowego.
+
