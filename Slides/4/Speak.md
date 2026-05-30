@@ -1,7 +1,9 @@
-Ludzie sądzą, że to się ich nie może dotyczyć. Ale sekty nie szukają ofiar — grają na tym, co każdy potrzebuje: akceptacji, bliskości, sensu.
+Dlaczego ludzie wpadają w sidła sekt? To nie kwestia głupoty — to kwestia podstawowych ludzkich potrzeb.
 
-Do sekt trafiają różni ludzie — zarówno mniej jak i bardziej wykształceni. Dzieje się to zwłaszcza w trudnych momentach: śmierć bliskiej osoby, rozstanie, strata pracy. Jeśli jesteś w takim momencie, możesz być bardziej otwarty/a na pomoc od kogokolwiek, kto ją oferuje.
+Współczesny świat często pozostawia ludzi w samotności: przeprowadzki, rozwody, utrata pracy, poczucie pustki. Sekty oferują gotowe rozwiązanie — wspólnotę, akceptację, sens. Dosłownie „bombardują miłością" nowych członków, tworząc poczucie rodziny.
 
-Sekty mają na to przepis: **love bombing**. Przychodzisz na spotkanie — wszyscy się uśmiechają, mówią, jaki/a jesteś wyjątkowy/a. To działa, bo chęć bycia uznanym jest czymś zupełnie normalnym. A dzisiaj werbowanie zaczyna się online: social media, Discord, Telegram, ale o tym będzie później w prezentacji
+Poza tym życie stało się bardziej skomplikowane i nieprzewidywalne. Sekty dają proste odpowiedzi tam, gdzie ich nie ma — jasną strukturę, lidera, gotowe prawdy. To szczególnie kusi w momentach przełomowych: po stracie bliskiej osoby, w kryzysie tożsamości czy w młodości.
 
-Im więcej w to zainwestujesz, tym trudniej się z tego wycofać. Każdy chce wierzyć, że nie popełnił błędu, i dlatego ludzie zostają w sektach.
+Co ważne, wykształcenie nie chroni w pełni. W chwilach słabości rządzą emocje, nie rozum. Nawet inteligentni ludzie mogą „wyłączyć" krytyczne myślenie, gdy ktoś oferuje im przynależność i ochronę przed lękiem.
+
+Sekty po prostu świetnie wykorzystują potrzeby, które są wieczne.

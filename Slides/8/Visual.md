@@ -1,15 +1,9 @@
-Титул: **Jak sekty werbują? Psychomanipulacja krok po kroku**
+### 4 fazy werbowania do sekt
 
+1. "Love bombing" - Werbownik okazuje ogromne zainteresowanie nową osobą, zasypuje ją komplementami.
 
+2. "Technika małych kroków" - grupa prosi o drobne przysługi
 
-→ Основное:
+3. Uzależnienie i łamanie osobowości
 
-Główne techniki werbowania:
-
-- Stopniowanie zaangażowania ("stopa w drzwiach")
-
-- Obietnica akceptacji i sensu
-
-- Izolacja od otoczenia
-
-- Targeting podatnych osób
+4. Przejęcie kontroli

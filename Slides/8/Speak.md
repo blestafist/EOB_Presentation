@@ -1,7 +1,11 @@
-Werbowanie do sekt to psychomanipulacja zaplanowana na konkretne etapy. Zaczyna się od małych zaproszeniach — na bezpłatny kurs, warsztat, wykład — które z czasem prowadzą do całkowitego oddania grupie.
+Sekty nie zaczynają od totalnej kontroli i manipulacji — to byłoby zbyt oczywiste. Zamiast tego działają powoli i sprytnie, przez cztery starannie zaplanowane fazy.
 
-Sekty szukają osób w trudnych momentach: po stracie bliskiej osoby, po rozstaniu, w kryzysie tożsamości, w samotności. W takich chwilach chęć akceptacji i sensu jest silniejsza niż ostrożność.
+**Faza 1 — Love bombing.** Nowy członek jest zasypywany uwagą, komplementami i bezwarunkowym ciepłem. Czuje się wyjątkowy i wreszcie rozumiany. Jednocześnie, niepostrzeżenie, zaczyna się izolacja od bliskich — „oni nie rozumieją prawdy, są źródłem złej energii".
 
-Zamiast oporu osób werbowanych spotyka miłość — obietnica wspólnoty, bezwaunkowej akceptacji, odpowiedzi na najważniejsze pytania. To działa również dzisiaj w internecie: social media, Discord, Telegram, VRChat — algorytmy pomagają sektom docierać do podatnych osób (o internecie później)
+**Faza 2 — Małe kroki.** Najpierw drobne prośby — przeczytaj książkę, przyjdź na spotkanie. Potem wymagania rosną. Im więcej czasu i energii zainwestujesz, tym trudniej przyznać przed sobą, że zostałeś oszukany. A wyjść z tego jest ciężko - mózg broni się przed poczuciem przegranej.
 
-Podatność na werbunek nie zależy od inteligencji, lecz od emocjonalnego stanu. Najbardziej zagrożeni są: młodzież szukająca autorytetów, osoby starsze doświadczający samotności, oraz osoby przechodzące kryzysy życiowe.
+**Faza 3 — Pranie mózgu.** Rygorystyczny plan dnia, chroniczny brak snu, specjalny „język wewnętrzny" grupy. Fizyczne wyczerpanie skutecznie wyłącza krytyczne myślenie. Każda wątpliwość jest przedstawiana jako twoja osobista słabość i brak wiary.
+
+**Faza 4 — Przejęcie kontroli.** Lider staje się absolutnym autorytetem. Decyduje o karierze, relacjach, finansach. Oszczędności, nieruchomości, cała pensja — trafia do grupy.
+
+Najgorsze? Większość ofiar nie zdaje sobie sprawy, że to się w ogóle dzieje.

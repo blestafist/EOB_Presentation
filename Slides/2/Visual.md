@@ -1,22 +1,16 @@
-Титул: Religia a sekta: co je odróżnia?
+Титул: Sekta — definicja i cechy charakterystyczne  
 
-Вот эту штуку сделать по разным сторонам слайда как сравнение
-**Religia:**
+сразу под титулом определение:
+Sekta destrukcyjna → zamknięta grupa, która uzależnia swoich członków psychicznie i ekonomicznie
+Cechy:
 
-- Otwarta, akceptuje wątpliwości
-- Szanuje wolność wyboru
-- Działa publicznie, doktryny dostępne
-- Zakorzeniona w tradycji i kulturze
+   - Charyzmatyczny lider — jego słowo jest prawem  
+   - Izolacja — zrywanie kontaktów z rodziną i znajomymi
+   - Kontrola informacji — zakaz czytania „nieprzyjaznych" źródeł
+   - Manipulacja — techniki „prania mózgu"
+   - Ekskluzywność — „tylko my znamy prawdę"
 
-**Sekta (destrukcyjna):**
+И добавить интерестную инфу, например например с эмодзи восклицательного знака:
+W Polsce działa szacunkowo nawet 300 grup o charakterze sektowym
 
-- Zamknięta, izoluje od rodziny i znajomych
-- Wymaga ślepego posłuszeństwa
-- Ukrywa swoje prawdziwe cele
-- Struktura autorytarna w kształcie piramidy
-
-Ну и снизу допустим сделать какое нибудь дополнение по типу
-Sama nazwa „sekta" nie zawsze oznacza coś złego — liczy się to, jak grupa traktuje swoich członków
-с каким нибудь эмодзи по типу лампочки
-
-Картинки какие вставлять вообще хз, да и места не особо будет
+По картинкам: Piramida władzy w sekcie / Zdjęcie Jonestown 1978 / Wykres modelu BITE Stevena Hassana (если будет что нибудь норм)
