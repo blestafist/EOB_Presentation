@@ -1,12 +1,12 @@
-Титул: **Dlaczego sekty nadal są aktualne?**
+Титул: **Dlaczego ludzie wierzą w sekty?**
 
 → Основное:
 
 Główne przyczyny:
 
-- Chęć przynależności1
+- Chęć przynależności
 - Kryzysy życiowe
 - Potrzeba sensu i bezpieczeństwa
 - Psychologiczne mechanizmy utrzymywania
 
-Картинки в папке рядом лежат, одна из них это "Love bombing", вторая это просто человек в толпе типа я никому не ужин и тд
+Картинку надо поменять на я никому не ужин, просто так, там она конечно не особо нужна но вписывается

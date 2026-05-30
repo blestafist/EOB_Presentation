@@ -7,3 +7,5 @@
 3. Uzależnienie i łamanie osobowości
 
 4. Przejęcie kontroli
+
+Вот сюда надо перекинуть Love Boming с 4того слайда, закину в папку
