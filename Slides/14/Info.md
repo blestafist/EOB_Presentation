@@ -1,0 +1,4 @@
+- Wyjście z sekty nie oznacza końca problemów – ofiary zmagają się z ciężką traumą na trzech poziomach: psychicznym, społecznym i fizycznym.
+- Skutki psychiczne: ofiary cierpią na PTSD (zespół stresu pourazowego), depresję oraz rozpad tożsamości, przez co muszą budować swoją osobowość od zera.
+- Skutki społeczne i fizyczne: izolacja od rodziny prowadzi do samotności po opuszczeniu grupy, a diety głodowe i brak snu niszczą zdrowie.
+- Proces odnowiania: powrót do normalnego funkcjonowania w społeczeństwie po doświadczeniach w sekcie zajmuje od kilku miesięcy do kilku lat
