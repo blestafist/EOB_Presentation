@@ -8,11 +8,7 @@ Psycholog Steven Hassan opisał to jako model BITE. To cztery rzeczy: kontrola z
 
 To nie są tylko teorie. W 1978 roku w Jonestown lider sekty kazał ponad 900 osobom wypić truciznę. doszło do masowego morderstwa i samobójstwa. To pokazuje, jak niebezpieczna jest manipulacja.
 
-
-
 ---
-
-
 
 ## Slajd 3
 
@@ -28,11 +24,7 @@ Ale kiedy mówimy o 'kulcie' czy 'sekcie destrukcyjnej', mówimy o czymś zupeł
 
 Według badań ponad 75% Polaków uważa sekty za poważne zagrożenie społeczne — i nie bez powodu.
 
-
-
 ---
-
-## 
 
 ## Slajd 4
 
@@ -54,8 +46,7 @@ Kiedy słyszymy słowo sekta, większość z nas wyobraża sobie jakieś stare f
 
 Dzisiaj sekty wyglądają zupełnie inaczej i mają się bardzo dobrze. W Polsce działają setki takich grup, tylko świetnie się maskują. Często rejestrują się legalnie jako szkoły medytacji, fundacje, ośrodki rozwoju osobistego albo grupy coachingowe.
 
-Co więcej, sekty przeniosły się do internetu. Szukają ludzi na TikToku, YouTube czy przez zamknięte grupy na Facebooku. I najważniejsze – ofiarą wcale nie zostaje ktoś naiwny czy głupi. W sektach jest mnóstwo inteligentnych i wykształconych osób.
-Bo sekty celowo szukają ludzi w trudnym momencie życia. Kiedy zmieniacie szkołę, przeprowadzacie się, macie kryzys w rodzinie albo po prostu czujecie się samotni. Wtedy najłatwiej kimś zamanipulować.
+Co więcej, sekty przeniosły się do internetu. Szukają ludzi na TikToku, YouTube czy przez zamknięte grupy na Facebooku. I najważniejsze – ofiarą wcale nie zostaje ktoś naiwny czy głupi. W sektach jest mnóstwo inteligentnych i wykształconych osób. Bo sekty celowo szukają ludzi w trudnym momencie życia. Kiedy zmieniacie szkołę, przeprowadzacie się, macie kryzys w rodzinie albo po prostu czujecie się samotni. Wtedy najłatwiej kimś zamanipulować.
 
 ---
 
@@ -63,11 +54,11 @@ Bo sekty celowo szukają ludzi w trudnym momencie życia. Kiedy zmieniacie szko�
 
 ## Finanse
 
-Wiele sekt działa jak ukryty biznes. Gdy ktoś dołącza do grupy, stopniowo oddaje swój majątek — oszczędności, nieruchomości, dziedzictwo. Naprzykład w sekcie "Świątynia Ludu każdy nowy członek automatycznie oddawał majątek organizacji. Lider kontrolował ok. 15 milionów dolarów. 
+Wiele sekt działa jak ukryty biznes. Gdy ktoś dołącza do grupy, stopniowo oddaje swój majątek — oszczędności, nieruchomości, dziedzictwo. Naprzykład w sekcie "Świątynia Ludu każdy nowy członek automatycznie oddawał majątek organizacji. Lider kontrolował ok. 15 milionów dolarów.
 
 ## Władza
 
-Możliwość całkowitego kontrolowania czyjichś decyzji daje poczucie siły, jakie trudno uzyskać w normalnym życiu. 
+Możliwość całkowitego kontrolowania czyjichś decyzji daje poczucie siły, jakie trudno uzyskać w normalnym życiu.
 
 ## Narcyzm (przekonanie o własnej wyjątkowości)
 
@@ -77,31 +68,21 @@ Wielu liderów szczerze wierzy, że są wybrani przez Boga, posiadają specjaln�
 
 Okazuje się, że wielu liderów sekt to byli artyści, muzycy, sportowcy. Ludzie przyzwyczajeni do gry przed publicznością, do oklasków i uwielbienia. Znaleźli sobie nową scenę, gdzie mogą być bogami dla swoich naśladowców — gdzie każda ich słowa jest błagosławieństwem, każdy rozkaz jest wykonywany bez pytań.
 
-
-
-Wielu z tych liderów nie zaczyna jako oszuści. Zaczynają szczerze wierząc w swoją misję. 
+Wielu z tych liderów nie zaczyna jako oszuści. Zaczynają szczerze wierząc w swoją misję.
 
 Osoba szczerze uważa się za wybraną, aby prowadzić innych. A jej narkystyczne cechy sprawiają, że nie słucha krytyki, nie czuje empatii wobec ofiar, uważa że zasługuje na wszystko — pieniądze, władzę, uwielbienie, całkowitą ofiarę swoich zwolenników.
 
-
-
 ---
-
-
 
 ## Slajd 7
 
 Przejdźmy teraz do osoby, bez której żadna sekta nie mogłaby istnieć – do lidera, nazywanego często guru. Słowo to w oryginale oznacza po prostu nauczyciela, ale w świecie sekt ma zupełnie inne, mroczne znaczenie
 
-Kim naprawdę jest guru? Z perspektywy psychologii to najczęściej skrajny narcyz, czyli osoba uzależniona od władzy, kontroli i podziwu innych. Taki człowiek na początku nie zachowuje się jak szaleniec. Wręcz przeciwnie – ma niesamowitą charyzmę, potrafi oczarować tłum i sprawić, że każdy czuje się przy nim wyjątkowy.  
+Kim naprawdę jest guru? Z perspektywy psychologii to najczęściej skrajny narcyz, czyli osoba uzależniona od władzy, kontroli i podziwu innych. Taki człowiek na początku nie zachowuje się jak szaleniec. Wręcz przeciwnie – ma niesamowitą charyzmę, potrafi oczarować tłum i sprawić, że każdy czuje się przy nim wyjątkowy.
 
 W sekcie słowo lidera to absolut. Zwykły nauczyciel pozwala zadawać pytania i dyskutować. Guru tego zabrania. Każda wątpliwość jest traktowana jako zdrada albo brak wiary. Z czasem u ludzi pojawia się tak zwany syndrom sekty – całkowicie przestają samodzielnie myśleć i ślepo wykonują każdy rozkaz, nawet ten najbardziej absurdalny dotyczący ich jedzenia, snu czy relacji.
 
-
-
 ---
-
-
 
 ## Slajd 8
 
@@ -117,38 +98,27 @@ Sekty nie zaczynają od totalnej kontroli i manipulacji — to byłoby zbyt oczy
 
 Najgorsze? Większość ofiar nie zdaje sobie sprawy, że to się w ogóle dzieje.
 
-
-
 ---
 
 ## Slajd 9
 
-Wiemy już, jak sekty przyciągają i manipulują ludźmi. Pojawia się jednak pytanie: dlaczego członkowie nie opuszczają grupy, skoro wewnątrz nie czują się dobrze?
-Choć nie stosuje się tam fizycznego przymusu, okazuje się, że niewidzialne kajdany są najsilniejsze  
+Wiemy już, jak sekty przyciągają i manipulują ludźmi. Pojawia się jednak pytanie: dlaczego członkowie nie opuszczają grupy, skoro wewnątrz nie czują się dobrze? Choć nie stosuje się tam fizycznego przymusu, okazuje się, że niewidzialne kajdany są najsilniejsze
 
 Psychologowie porównują wyjście z sekty do walki z ciężkim uzależnieniem. Pierwsza blokada siedzi w głowie – to tak zwany trauma bonding, czyli traumatyczna więź. Człowiek staje się emocjonalnie uzależniony od grupy, która go krzywdzi, bo ta sama grupa wcześniej dawała mu miłość i poczucie bezpieczeństwa. To działa podobnie, jak w toksycznych związkach.
 
 No i dochodzą bariery praktyczne. Sekty bardzo często zabierają członkom pieniądze i dokumenty. Taki człowiek po wyjściu nie ma dosłownie nic: ani grosza w kieszeni, ani dachu nad głową, a rodzina już dawno zerwała z nim kontakt. Nie ma dokąd pójść i sekta robi to zaswsze celowo
 
-
-
 ---
 
-
-
-## Slajd 10
-
-Mówimy dużo o dorosłych w sektach. Ale jest jeszcze jedna, bardziej bezbronna kategoria ofiar — dzieci.
+## Slajd 10 - Дима
 
 Dziecko trafia do sekty na dwa sposoby: albo się w niej rodzi, albo jego rodzice wstępują do sekty i automatycznie wciągają je ze sobą.
 
-W Jonestown w 1978 roku wśród ponad 900 ofiar było niemal 300 dzieci. Wszystkie nazywały Jima Jonesa 'Tatą'. Dopiero po tragedii dochodzenia ujawniły, jak wyglądało ich życie: dotkliwe bicie pasem i kijem, poniżające kary, zmuszanie do stania nago przed innymi dziećmi.
+W Jonestown (Peoples Temple) po tragedii wśród ponad 900 ofiar było ok. 300 dzieci. Dopiero po tragedii dochodzenia ujawniły, jak wyglądało ich życie: dotkliwe bicie pasem i kijem, poniżające kary.
 
 Ale przemoc fizyczna to nie wszystko. Dzieci w sektach są ofiarami manipulacji psychicznej, molestowania seksualnego i wymuszonej pracy. W scjentologii 8-letnie dzieci podpisują 'umowy na miliard lat' i pracują po 100 godzin tygodniowo za grosze.
 
-Najgorsze jest to, że dzieci wychowane w sektach są odcięte od świata. Nie mają umiejętności potrzebnych do życia na zewnątrz — nie znają normalnego świata, nie mają wykształcenia, często nawet dokumentów. Są uzależnione od sekty bardziej niż ich rodzice.
-
-
+Najgorsze jest to, że dzieci wychowane w sektach są odcięte od świata. Nie mają umiejętności potrzebnych do życia na zewnątrz — nie mają wykształcenia, często nawet dokumentów.
 
 ---
 
@@ -160,57 +130,41 @@ Sekty całkowicie to ignorują. Przy próbie odejścia stosują szantaż emocjon
 
 Dlaczego państwo po prostu nie zakaże działalności sekt? W demokratycznym kraju nie można nikomu zakazać wierzyć w to, co chce. Służby mogą reagować dopiero wtedy, gdy dochodzi do konkretnych przestępstw: oszustw, wyzysku czy przemocy.
 
-
-
 ---
 
+## Slajd 12 - Дима
 
-
-## Slajd 12
-
-Na koniec — i to jest szczególnie ważne dla naszego pokolenia — sekty przeniosły się do internetu. I robią to bardzo sprytnie.
+Na koniec — i to jest szczególnie ważne dla dzisiejszych czasów — sekty przeniosły się do internetu.
 
 Wyobraźcie sobie, że przeglądacie TikToka i trafiacie na profil 'Przebudź się — odkryj swoją duchową misję'. Algorytm chętnie poleca takie treści osobom, które szukają czegoś o samotności, depresji — bo to właśnie takie osoby są najłatwiejszym celem.
 
 Prawdziwy przykład: Twin Flames Universe — sekta założona w 2017 roku, działająca wyłącznie online przez YouTube i Facebook. Obiecywała znalezienie 'duchowej miłości życia'. Tysiące osób straciło pieniądze i zdrowie psychiczne.
 
-Ale to nie wszystko. Sekty działają też w wirtualnych światach jak VRChat. Tam jest jeszcze łatwiej — ludzie ukrywają się za awatarami, często są młodzi i samotni. Grupa Dark Guild w VRChat zmuszała nastolatków do podpisywania 'kontraktów krwi', groziła im i manipulowała. Dopiero po śledztwie YouTubera sprawa wyszła na jaw.
-
-
+Ale to nie wszystko. Sekty działają też w wirtualnych światach jak VRChat. Grupa Dark Guild w VRChat zmuszała nastolatków do podpisywania 'kontraktów krwi', groziła im i manipulowała. Dopiero po śledztwie YouTubera sprawa wyszła na jaw.
 
 ---
-
-
 
 ## Slajd 13
 
-Jednym z najsilniejszych narzędzi kontroli w sektach jest strach, a nic nie przeraża bardziej niż wizja końca świata. Sekty apokaliptyczne budują całą swoją działalność na strachu przed bliską katastrofą – wojną, plagą czy zderzeniem z asteroidą. Zasada jest prosta: lider ogłasza nadchodzący koniec, ale od razu daje rozwiązanie – przeżyją tylko ci, którzy będą bezwzględnie posłuszni grupie.  
+Jednym z najsilniejszych narzędzi kontroli w sektach jest strach, a nic nie przeraża bardziej niż wizja końca świata. Sekty apokaliptyczne budują całą swoją działalność na strachu przed bliską katastrofą – wojną, plagą czy zderzeniem z asteroidą. Zasada jest prosta: lider ogłasza nadchodzący koniec, ale od razu daje rozwiązanie – przeżyją tylko ci, którzy będą bezwzględnie posłuszni grupie.
 
-To nie są tylko teoretyczne manipulacje, ale powód ogromnych tragedii. W 1997 roku 39 członków amerykańskiej sekty Heaven's Gate popełniło zbiorowe samobójstwo. Uwierzyli swojemu liderowi, że za kometą Hale'a-Boppa leci statek kosmiczny, a śmierć ciała to jedyny bilet, żeby uciec przed zniszczeniem Ziemi.  
+To nie są tylko teoretyczne manipulacje, ale powód ogromnych tragedii. W 1997 roku 39 członków amerykańskiej sekty Heaven's Gate popełniło zbiorowe samobójstwo. Uwierzyli swojemu liderowi, że za kometą Hale'a-Boppa leci statek kosmiczny, a śmierć ciała to jedyny bilet, żeby uciec przed zniszczeniem Ziemi.
 
 Jeszcze bardziej skrajnym przykładem jest japońska grupa Aum Shinrikyo. Ich lider był przekonany o nadchodzącym Armagedonie i postanowił go przyspieszyć. W 1995 roku sekta przeprowadziła atak terrorystyczny w metrze w Tokio, rozpylając trujący gaz sarin. Zginęło 13 osób, a ponad 6 tysięcy zostało rannych. To pokazuje, że idea końca świata staje się śmiertelnie niebezpieczna, gdy służy do kontrolowania ludzkiego strachu
 
-
-
 ---
 
+## Slajd 14 - Дима
 
+Wyjście z sekty to zaledwie początek ogromnej walki, ponieważ te grupy niszczą człowieka na trzech poziomach.
 
-## Slajd 14
-
-Zobaczmy, co tak naprawdę dzieje się z ludźmi, którzy którzy trafili w ich ręce. Wyjście z sekty to zaledwie początek ogromnej walki, ponieważ te grupy niszczą człowieka na trzech poziomach. 
-
-Po pierwsze: psychika. Wiele ofiar cierpi na PTSD, czyli zespół stresu pourazowego. To dokładnie te same objawy, z jakimi zmagają się żołnierze wracający z misji wojennych: stany lękowe, koszmary i nawracające wspomnienia. Co gorsza, dochodzi do rozpadu tożsamości – człowiek po latach manipulacji dosłownie nie wie, kim jest, co lubi i w co wierzy, bo dotąd wszystko dyktował mu lider.
+Po pierwsze: psychika. Wiele ofiar cierpi na zespół stresu pourazowego. To dokładnie te same objawy, z jakimi zmagają się żołnierze wracający z misji wojennych: stany lękowe, koszmary i nawracające wspomnienia. Co gorsza, dochodzi do rozpadu tożsamości – człowiek po latach manipulacji dosłownie nie wie, kim jest, co lubi i w co wierzy, bo dotąd wszystko dyktował mu lider.
 
 Po drugie: społeczeństwo. Sekty celowo odcinają członków od bliskich. Kiedy ofiara w końcu ucieka, okazuje się, że nie ma dokąd wracać – rodzina i przyjaciele dawno zniknęli z jej życia, a studia czy praca zostały porzucone.
 
 I po trzecie: zdrowie fizyczne. Przez przymusowe posty, drastyczne diety i brak snu, uciekinierzy są często skrajnie wycieńczeni i zmagają się z nieleczonymi przez lata chorobami
 
-
-
 ---
-
-
 
 ## Slajd 15
 
@@ -220,39 +174,29 @@ Werbownicy z góry uprzedzają nowych członków: „Zobaczycie, rodzina was zaa
 
 W rozmowie najlepiej sprawdza się zadawanie pytań zamiast dawania gotowych odpowiedzi. Pytania typu: „Co czujesz, kiedy ktoś w grupie ma inne zdanie?” powoli zmuszają do samodzielnego myślenia, którego sekty panicznie się boją. Także w Polsce działają specjalne ośrodki gdzie eksperci podpowiadają rodzinom, jak bezpiecznie wyciągnąć człowieka z takiej grupy.
 
-
-
 ---
 
-
-
-## Slajd 16
+## Slajd 16 - Дима
 
 Największą i najlepiej widoczną jest organizacja Świadków Jehowy — w Polsce liczy ok. 120 tysięcy członków. Są zarejestrowani jako związek wyznaniowy, więc formalnie mają pełne prawa. Ale ich doktryna zawiera cechy typowe dla sekt: zakaz kwestionowania władz organizacji, izolację od świata zewnętrznego, zakaz świąt, hymnu, transfuzji krwi.
 
 W Polsce działa też Kościół Scjentologiczny — obecny m.in. w Warszawie. Jest krytykowany na całym świecie za techniki finansowego wyzysku i próby izolowania członków od rodzin.
 
-Co ważne: rząd RP w raporcie bezpieczeństwa już w 1995 roku wymienił grupy uznane za szczególnie niebezpieczne — Kościół Zjednoczenia Moona, Kościół Scjentologiczny, grupy satanistyczne.
-
 Także w Polsce działa sieć pomocy dla ofiar sekt. Dominikański Ośrodek Informacji o Nowych Ruchach Religijnych i Sektach w Krakowie i wiele innych. Tam można uzyskać pomoc — zarówno osoba, która chce wyjść, jak i rodzina, która chce pomóc.
-
-
 
 ---
 
-## Slajd 17
+## Slajd 17 - Дима
 
 Mówiliśmy już o prawach człowieka i o tym, jak brutalnie są one łamane w sektach. Teraz zobaczymy, jak poszczególne państwa przechodzą do konkretnych działań politycznych i policyjnych, bo podejście rządów na świecie znacznie się różni.
 
 We Francji wprowadzono rewolucyjną ustawę About-Picard, która uznała manipulację psychiczną za przestępstwo karne. Dzięki temu tamtejszy sąd może legalnie zamknąć i całkowicie zlikwidować całą organizację, jeśli udowodni się, że zniewalała ludzi psychicznie.
 
-W Niemczech sprawą zajął się kontrwywiad, który oficjalnie inwigiluje i podsłuchuje Scjentologię, uznając ją za zagrożenie dla demokracji, a jej członkowie mają zakaz pracy w urzędach. W Polsce nie mamy takich ustaw – działamy zwykłym kodeksem karnym, choć już w latach dziewięćdziesiątych Biuro Bezpieczeństwa Narodowego wydało raporty uznające sekty za oficjalne zagrożenie dla kraju.
+W Niemczech sprawą zajął się kontrwywiad, który oficjalnie inwigiluje i podsłuchuje Scjentologię, uznając ją za zagrożenie dla demokracji, a jej członkowie mają zakaz pracy w urzędach.
 
-
+W Polsce nie mamy takich ustaw – działamy zwykłym kodeksem karnym, choć już w latach 90-ch Biuro Bezpieczeństwa Narodowego wydało raporty uznające sekty za oficjalne zagrożenie dla kraju.
 
 ---
-
-
 
 ## Slajd 18
 
@@ -264,11 +208,7 @@ Ale w latach siedemdziesiątych, gdy media zaczęły ujawniać nadużycia, Jones
 
 18 listopada 1978 roku, gdy amerykański kongresman Leo Ryan przybył z inspekcją i próbował ewakuować uciekinierów, został zastrzelony na lotnisku. Tej samej nocy Jones zmusił swoich wyznawców do wypicia trucizny z cyjankiem. Dziewięćset osiemnaście osób nie przeżyło – w tym ponad dwieście dzieci. To było największe samobójstwo masowe w historii 20 wieku
 
-
-
 ---
-
-
 
 ## Slajd 19
 
@@ -278,27 +218,19 @@ Scjentologia przyciąga ludzi, obietnicą oczyszczenia umysłu poprzez tak zwane
 
 Druga grupa to NXIVM, która z zewnątrz wyglądała jak ekskluzywna firma oferująca coaching i kursy samorozwoju. Lider grupy Raniere, pod płaszczykiem psychologii stworzył wewnątrz sekty tajną strukturę niewolniczą dla kobiet. Członkinie były głodzone, a nawet brutalnie znakowane rozgrzanym żelazem z inicjałami lidera. Ta iluzja pękła w 2020, gdy Raniere został skazany na sto dwadzieścia lat więzienia za handel ludźmi i wyzysk.
 
-
-
 ---
-
-
 
 ## Slajd 20
 
 Teraz przyjrzymy się dwóm sektom, które pokazują, jak absurdalne i skrajne mogą być przekonania grup religijnych opartych na wierze w UFO.
 
-Pierwsza to Heaven's Gate, założona w latach siedemdziesiątych w Stanach Zjednoczonych. Jej liderzy uczyli, że ludzkie ciało to tylko tymczasowy „kontener" dla duszy, a prawdziwe życie czeka na wyznawców na „Następnym Poziomie" — pozaziemskiej cywilizacji. 
+Pierwsza to Heaven's Gate, założona w latach siedemdziesiątych w Stanach Zjednoczonych. Jej liderzy uczyli, że ludzkie ciało to tylko tymczasowy „kontener" dla duszy, a prawdziwe życie czeka na wyznawców na „Następnym Poziomie" — pozaziemskiej cywilizacji.
 
-W marcu tysiąc dziewięćset dziewięćdziesiątego siódmego roku, gdy pojawiła się kometa Hale-Bopp, grupa uwierzyła, że za kometą leci statek kosmiczny, który zabierze ich dusze. Trzydzieści dziewięć osób popełniło zaplanowane masowe samobójstwo w Kalifornii. 
+W marcu tysiąc dziewięćset dziewięćdziesiątego siódmego roku, gdy pojawiła się kometa Hale-Bopp, grupa uwierzyła, że za kometą leci statek kosmiczny, który zabierze ich dusze. Trzydzieści dziewięć osób popełniło zaplanowane masowe samobójstwo w Kalifornii.
 
-Druga sekta to Raëlizm, według którego ludzkość została stworzona przez istoty kosmiczne za pomocą inżynierii genetycznej. Raëlianie założyli nawet firmę Clonaid, która miała oferować klonowanie ludzi i w dwa tysiące drugim roku ogłosiła narodziny pierwszego sklonowanego dziecka — oczywiście bez żadnych dowodów. 
-
-
+Druga sekta to Raëlizm, według którego ludzkość została stworzona przez istoty kosmiczne za pomocą inżynierii genetycznej. Raëlianie założyli nawet firmę Clonaid, która miała oferować klonowanie ludzi i w dwa tysiące drugim roku ogłosiła narodziny pierwszego sklonowanego dziecka — oczywiście bez żadnych dowodów.
 
 ---
-
-
 
 ## Slajd 21
 
@@ -307,7 +239,5 @@ W historii można znaleźć przykłady, w które na pierwszy rzut oka aż trudno
 Zaczynamy od Zakonu Świątyni Słońca, który działał w Szwajcarii i Kanadzie. Ta grupa stworzyła przedziwną ideologię, łącząc średniowieczne legendy o templariuszach, astrologię oraz wiarę w UFO. Gdy przepowiednie lidera o końcu świata zawiodły, ogłosił on, że nadszedł czas na tak zwane „zbiorowe przejście do wyższego wymiaru”. W ciągu kilku dni zginęły pięćdziesiąt trzy osoby. Co przerażające, część z nich została po prostu brutalnie zamordowana przez resztę sekty, bo wcale nie chcieli umierać. Ta fala trageditarzała się jeszcze w kolejnych latach.
 
 Drugi przykład to działająca w latach 90 na Lubelszczyźnie polska sekta o nazwie „Niebo”. Jej założyciel, Bogdan Kacmajor, ogłosił się władcą absolutnym: sam zmienił imię na „Nie”, żonę nazwał „Bo”, a swoim dzieciom nadawał imiona tworzące całe zdania, jak na przykład „Niebo Idzie Do Nas Co Dzień”. Kaczmajor straszył ludzi apokalipsą i całkowicie kontrolował ich prywatność. Decydował, kto z kim ma brać ślub, co doprowadzało do przymusowych związków dorosłych z nastolatkami. Grupa była na tyle niebezpieczna, że trafiła do oficjalnego raportu Biura Bezpieczeństwa Narodowego.
-
-
 
 ---
