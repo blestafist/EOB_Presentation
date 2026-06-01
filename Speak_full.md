@@ -131,7 +131,7 @@ Dlaczego państwo po prostu nie zakaże sekt? W demokratycznym kraju nie można 
 
 Na koniec — i to jest szczególnie ważne dla dzisiejszych czasów — sekty przeniosły się do internetu.
 
-Pradziwy przykład: Twimes Universe — sekta założona w 2017 roku, działająca wyłącznie online przez YouTube i Facebook. Obiecywała znalezienie 'duchowej miłości życia'. Tysiące osób straciło pieniądze i zdrowie psychiczne.
+Pradziwy przykład: Twin Flames Universe — sekta założona w 2017 roku, działająca wyłącznie online przez YouTube i Facebook. Obiecywała znalezienie 'duchowej miłości życia'. Tysiące osób straciło pieniądze i zdrowie psychiczne.
 
 Ale to nie wszystko. Sekty działają też w wirtualnych światach jak VRChat. Grupa Dark Guild w VRChat zmuszała nastolatków do podpisywania 'kontraktów krwi', groziła im i manipulowała. Dopiero po śledztwie YouTubera sprawa wyszła na jaw.
 
