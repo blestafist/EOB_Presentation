@@ -11,21 +11,23 @@ To nie są tylko teorie. W 1978 roku w Jonestown lider sekty kazał ponad 900 os
 
 ## Slajd 3 - Ира
 
-Zanim przejdziemy do tematu sekt, warto zadać sobie pytanie: czym właściwie różni się religia od sekty?
+Zanim przejdziemy do tematu sekt, warto zadać sobie pytanie: czym właściwie różni się religia od sekty? 
 
 Religia — czy to chrześcijaństwo, islam, buddyzm, czy inne — jest zazwyczaj systemem wierzeń otwartym na społeczeństwo. Możesz wierzyć, możesz wątpić, możesz odejść. Kościoły działają publicznie, ich doktryny są znane i dostępne. Religia zakłada też szacunek do innych ludzi, nawet tych, którzy nie należą do danej wspólnoty.
 
-Sekta natomiast — zwłaszcza tzw. sekta destrukcyjna — działa zupełnie inaczej. Izoluje swoich członków od rodziny i znajomych. Wymaga absolutnego posłuszeństwa wobec lidera. Ukrywa swoje prawdziwe cele — to, co widać z zewnątrz, często bardzo różni się od tego, co dzieje się w środku.
+Natomiast sekta to grupa społeczna która odłączyła się od większego ruchu, przyjmując własne zasady. 
 
 Protestanci byli kiedyś nazywani sektą przez Kościół katolicki. Islam ma sunnitów i szyitów, chrześcijaństwo ma baptystów i luteranów — to wszystko sekty w neutralnym znaczeniu tego słowa.
 
-Ale kiedy mówimy o 'kulcie' czy 'sekcie destrukcyjnej', mówimy o czymś zupełnie innym. To autorytarny reżim w kształcie piramidy, który wykorzystuje oszustwo w rekrutacji — ludziom NIE mówi się, czym grupa naprawdę jest, w co wierzy i czego będzie się od nich oczekiwać. Kluczowa różnica nie leży w przekonaniach religijnych, lecz w metodach działania: czy grupa szanuje wolność i godność człowieka, czy je niszczy.
+ sekta destrukcyjna — działa zupełnie inaczej. Izoluje swoich członków od rodziny i znajomych. Wymaga absolutnego posłuszeństwa wobec lidera. Ukrywa swoje prawdziwe cele — to, co widać z zewnątrz, często bardzo różni się od tego, co dzieje się w środku.
 
-Według badań ponad 75% Polaków uważa sekty za poważne zagrożenie społeczne — i nie bez powodu.
+To autorytarny reżim w kształcie piramidy, który wykorzystuje oszustwo w rekrutacji — ludziom NIE mówi się, czym grupa naprawdę jest, w co wierzy i czego będzie się od nich oczekiwać. Kluczowa różnica nie leży w przekonaniach religijnych, lecz w metodach działania: czy grupa szanuje wolność i godność człowieka, czy je niszczy.
+
+Według badań ponad 75% Polaków uważa sekty za poważne zagrożenie społeczne — i nie bez powodu
 
 ---
 
-## Slajd 4 - Ира
+## Slajd 4  - Ира
 
 Dlaczego ludzie wpadają w sidła sekt?
 
