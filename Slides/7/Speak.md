@@ -1,5 +1,5 @@
-Przejdźmy teraz do osoby, bez której żadna sekta nie mogłaby istnieć – do lidera, nazywanego często guru. Słowo to w oryginale oznacza po prostu nauczyciela, ale w świecie sekt ma zupełnie inne, mroczne znaczenie
+Przejdźmy do osoby, bez której żadna sekta nie istnieje – do lidera, czyli guru. Choć to słowo oznacza „nauczyciela”, w tym świecie ma mroczne znaczenie.
 
-Kim naprawdę jest guru? Z perspektywy psychologii to najczęściej skrajny narcyz, czyli osoba uzależniona od władzy, kontroli i podziwu innych. Taki człowiek na początku nie zachowuje się jak szaleniec. Wręcz przeciwnie – ma niesamowitą charyzmę, potrafi oczarować tłum i sprawić, że każdy czuje się przy nim wyjątkowy.  
+Kim jest guru? Psychologia widzi w nim skrajnego narcyza, uzależnionego od władzy i podziwu. Na początku nie brzmi jak szaleniec – przeciwnie, ma ogromną charyzmę, potrafi oczarować tłum i sprawić, że każdy czuje się wyjątkowy.
 
-W sekcie słowo lidera to absolut. Zwykły nauczyciel pozwala zadawać pytania i dyskutować. Guru tego zabrania. Każda wątpliwość jest traktowana jako zdrada albo brak wiary. Z czasem u ludzi pojawia się tak zwany syndrom sekty – całkowicie przestają samodzielnie myśleć i ślepo wykonują każdy rozkaz, nawet ten najbardziej absurdalny dotyczący ich jedzenia, snu czy relacji.
+Jednak w sekcie słowo lidera to absolut. Zwykły nauczyciel pozwala na dyskusję, guru jej zabrania. Każda wątpliwość to zdrada. Z czasem u wyznawców pojawia się syndrom sekty: przestają samodzielnie myśleć i ślepo wykonują każdy rozkaz – od finansów po kontrolę snu czy jedzenia.

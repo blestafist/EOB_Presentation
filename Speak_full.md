@@ -74,13 +74,13 @@ Osoba szczerze uważa się za wybraną, aby prowadzić innych. A jej narkystyczn
 
 ---
 
-## Slajd 7
+## Slajd 7 - Игорь
 
-Przejdźmy teraz do osoby, bez której żadna sekta nie mogłaby istnieć – do lidera, nazywanego często guru. Słowo to w oryginale oznacza po prostu nauczyciela, ale w świecie sekt ma zupełnie inne, mroczne znaczenie
+Przejdźmy do osoby, bez której żadna sekta nie istnieje – do lidera, czyli guru. Choć to słowo oznacza „nauczyciela”, w tym świecie ma mroczne znaczenie.
 
-Kim naprawdę jest guru? Z perspektywy psychologii to najczęściej skrajny narcyz, czyli osoba uzależniona od władzy, kontroli i podziwu innych. Taki człowiek na początku nie zachowuje się jak szaleniec. Wręcz przeciwnie – ma niesamowitą charyzmę, potrafi oczarować tłum i sprawić, że każdy czuje się przy nim wyjątkowy.
+Kim jest guru? Psychologia widzi w nim skrajnego narcyza, uzależnionego od władzy i podziwu. Na początku nie brzmi jak szaleniec – przeciwnie, ma ogromną charyzmę, potrafi oczarować tłum i sprawić, że każdy czuje się wyjątkowy.
 
-W sekcie słowo lidera to absolut. Zwykły nauczyciel pozwala zadawać pytania i dyskutować. Guru tego zabrania. Każda wątpliwość jest traktowana jako zdrada albo brak wiary. Z czasem u ludzi pojawia się tak zwany syndrom sekty – całkowicie przestają samodzielnie myśleć i ślepo wykonują każdy rozkaz, nawet ten najbardziej absurdalny dotyczący ich jedzenia, snu czy relacji.
+Jednak w sekcie słowo lidera to absolut. Zwykły nauczyciel pozwala na dyskusję, guru jej zabrania. Każda wątpliwość to zdrada. Z czasem u wyznawców pojawia się syndrom sekty: przestają samodzielnie myśleć i ślepo wykonują każdy rozkaz – od finansów po kontrolę snu czy jedzenia.
 
 ---
 
@@ -102,11 +102,12 @@ Najgorsze? Większość ofiar nie zdaje sobie sprawy, że to się w ogóle dziej
 
 ## Slajd 9
 
-Wiemy już, jak sekty przyciągają i manipulują ludźmi. Pojawia się jednak pytanie: dlaczego członkowie nie opuszczają grupy, skoro wewnątrz nie czują się dobrze? Choć nie stosuje się tam fizycznego przymusu, okazuje się, że niewidzialne kajdany są najsilniejsze
+Wiemy już, jak sekty manipulują ludźmi. Dlaczego jednak członkowie nie odchodzą, skoro wewnątrz nie czują się dobrze?   
+Choć nie ma tam fizycznego przymusu, niewidzialne kajdany okazują się najsilniejsze. 
 
-Psychologowie porównują wyjście z sekty do walki z ciężkim uzależnieniem. Pierwsza blokada siedzi w głowie – to tak zwany trauma bonding, czyli traumatyczna więź. Człowiek staje się emocjonalnie uzależniony od grupy, która go krzywdzi, bo ta sama grupa wcześniej dawała mu miłość i poczucie bezpieczeństwa. To działa podobnie, jak w toksycznych związkach.
+Działa tu tak zwany efekt pułapki. Pierwsza blokada psychiczna to trauma bonding – silna więź emocjonalna z manipulatorem. Człowiek uzależnia się od grupy, która go krzywdzi, bo wcześniej dawała mu miłość. Dochodzi do tego utrata tożsamości i paraliżujące pytanie: „kim jestem bez grupy?”.
 
-No i dochodzą bariery praktyczne. Sekty bardzo często zabierają członkom pieniądze i dokumenty. Taki człowiek po wyjściu nie ma dosłownie nic: ani grosza w kieszeni, ani dachu nad głową, a rodzina już dawno zerwała z nim kontakt. Nie ma dokąd pójść i sekta robi to zaswsze celowo
+Drugą barierą są blokady praktyczne. Sekty celowo odcinają drogę ucieczki. Następuje całkowita izolacja – brak znajomych i dachu nad głową poza grupą. Do tego dochodzi brak środków przez utratę majątku, oszczędności i dokumentów. Taki człowiek nie ma dokąd pójść.
 
 ---
 
@@ -124,11 +125,11 @@ Najgorsze jest to, że dzieci wychowane w sektach są odcięte od świata. Nie m
 
 ## Slajd 11
 
-Teraz przejdziemy do tematu prawnego: gdzie kończy się wolność religijna, a zaczyna naruszanie praw człowieka? Europejska Konwencja Praw Człowieka gwarantuje każdemu z nas wolność wyznania, ale to prawo działa w dwie strony – oznacza też wolność do zmiany zdania i bezkarnego odejścia z grupy.
+Gdzie kończy się wolność religijna, a zaczyna naruszanie praw człowieka? Granica wolności jest jasna: prawo gwarantuje wolność wyznawania wiary, ale nie daje prawa do krzywdzenia innych. Te gwarancje prawne zapewniają nam wolność myśli, sumienia oraz prawo do swobodnej zmiany religii i odejścia z grupy.
 
-Sekty całkowicie to ignorują. Przy próbie odejścia stosują szantaż emocjonalny, zastraszanie albo grożą całkowitym odcięciem od rodziny. Oprócz tego łamią prawo do informacji, bo zakazują czytania niezależnych źródeł, co jest czystą cenzurą. Dochodzi też do łamania godności poprzez wyzysk finansowy, a w przypadku dzieci – w przypadku dzieci – odmawiania im podstawowego leczenia lub edukacji.
+Sekty całkowicie to ignorują. Główne naruszenia w sektach to zastraszanie i presja psychiczna przy próbie odejścia. Wprowadzana jest cenzura i całkowity zakaz dostępu do niezależnych informacji. Dochodzi też do wyzysku finansowego oraz naruszania praw dziecka, na przykład poprzez odmowę leczenia.
 
-Dlaczego państwo po prostu nie zakaże działalności sekt? W demokratycznym kraju nie można nikomu zakazać wierzyć w to, co chce. Służby mogą reagować dopiero wtedy, gdy dochodzi do konkretnych przestępstw: oszustw, wyzysku czy przemocy.
+Dlaczego państwo po prostu nie zakaże sekt? W demokratycznym kraju nie można nikomu zakazać wierzyć w to, co chce. Służby mogą reagować dopiero wtedy, gdy dochodzi do konkretnych przestępstw: oszustw czy przemocy.
 
 ---
 
@@ -146,11 +147,11 @@ Ale to nie wszystko. Sekty działają też w wirtualnych światach jak VRChat. G
 
 ## Slajd 13
 
-Jednym z najsilniejszych narzędzi kontroli w sektach jest strach, a nic nie przeraża bardziej niż wizja końca świata. Sekty apokaliptyczne budują całą swoją działalność na strachu przed bliską katastrofą – wojną, plagą czy zderzeniem z asteroidą. Zasada jest prosta: lider ogłasza nadchodzący koniec, ale od razu daje rozwiązanie – przeżyją tylko ci, którzy będą bezwzględnie posłuszni grupie.
+Jednym z najsilniejszych narzędzi kontroli w sektach jest strach, a nic nie przeraża bardziej niż wizja końca świata. Liderzy sekt apokaliptycznych najpierw sztucznie wywołują paraliżujący strach przed zagładą, a potem oferują siebie jako jedyny ratunek. Przeżyją tylko ci, którzy będą bezwzględnie posłuszni.
 
-To nie są tylko teoretyczne manipulacje, ale powód ogromnych tragedii. W 1997 roku 39 członków amerykańskiej sekty Heaven's Gate popełniło zbiorowe samobójstwo. Uwierzyli swojemu liderowi, że za kometą Hale'a-Boppa leci statek kosmiczny, a śmierć ciała to jedyny bilet, żeby uciec przed zniszczeniem Ziemi.
+To nie są tylko teoretyczne manipulacje. Tragedia Heaven’s Gate z 1997 roku pokazała ucieczkę przed końcem świata przez zbiorowe samobójstwo 39 osób. Wierzyły one, że ich dusze trafią на statek kosmiczny lecący za kometą Hale’a-Boppa, a śmierć ciała to jedyny bilet ratunku.
 
-Jeszcze bardziej skrajnym przykładem jest japońska grupa Aum Shinrikyo. Ich lider był przekonany o nadchodzącym Armagedonie i postanowił go przyspieszyć. W 1995 roku sekta przeprowadziła atak terrorystyczny w metrze w Tokio, rozpylając trujący gaz sarin. Zginęło 13 osób, a ponad 6 tysięcy zostało rannych. To pokazuje, że idea końca świata staje się śmiertelnie niebezpieczna, gdy służy do kontrolowania ludzkiego strachu
+Jeszcze bardziej skrajny był atak Aum Shinrikyo w 1995 roku. Była to próba przyspieszenia zapowiadanego Armagedonu poprzez brutalny zamach terrorystyczny z użyciem gazu bojowego – sarinu – w tokijskim metrze. Zginęło wtedy 13 osób, a tysiące zostało rannych. Ta kontrola strachu bywa śmiertelnie niebezpieczna.
 
 ---
 
@@ -166,13 +167,13 @@ I po trzecie: zdrowie fizyczne. Przez przymusowe posty, drastyczne diety i brak 
 
 ---
 
-## Slajd 15
+## Slajd 15 - Игорь
 
-Wyobraźcie sobie, że ktoś z waszych bliskich – brat, siostra albo przyjaciel – trafia do sekty. Pierwsza, intuicyjna reakcja to zazwyczaj złość. Chcecie natychmiast działać i za wszelką cenę udowadniać, że ta grupa to oszustwo. Paradoksalnie, to najgorsze, co możecie zrobić, bo właśnie na to czeka lider sekty.
+Wyobraźcie sobie, że ktoś z waszych bliskich trafia do sekty. Intuicyjna reakcja to złość, chęć stawiania ultimatum i zmuszania do natychmiastowego wyjścia. Paradoksalnie, to najgorsze, co możecie zrobić, bo właśnie na to czeka lider sekty.
 
-Werbownicy z góry uprzedzają nowych członków: „Zobaczycie, rodzina was zaatakuje, bo nie rozumie prawdy”. Kiedy zaczynacie krzyczeć, ofiara widzi w tym potwierdzenie słów lidera i jeszcze mocniej odcina się od świata. Zamiast agresji kluczem jest cierpliwość i stały kontakt, żeby pokazać, że wasza relacja wciąż istnieje i sekta kłamała, mówiąc, że bliscy się odwrócą.
+Werbownicy ostrzegają: „rodzina was zaatakuje”. Kiedy zaczynacie od agresywnej krytyki grupy i lidera, ofiara odcina się jeszcze mocniej. Zamiast zrywać relacje, kluczem jest cierpliwość i utrzymywanie stałego, spokojnego kontaktu, by pokazać, że wasza więź wciąż istnieje.
 
-W rozmowie najlepiej sprawdza się zadawanie pytań zamiast dawania gotowych odpowiedzi. Pytania typu: „Co czujesz, kiedy ktoś w grupie ma inne zdanie?” powoli zmuszają do samodzielnego myślenia, którego sekty panicznie się boją. Także w Polsce działają specjalne ośrodki gdzie eksperci podpowiadają rodzinom, jak bezpiecznie wyciągnąć człowieka z takiej grupy.
+W rozmowie najlepiej sprawdza się zadawanie pytań, które budzą wątpliwości i zmuszają do samodzielnego myślenia, zamiast gotowych odpowiedzi. Pamiętajcie, że nie jesteście sami i warto szukać wsparcia w polskich ośrodkach informacji, gdzie eksperci pomogą bezpiecznie wyciągnąć człowieka z grupy.
 
 ---
 
