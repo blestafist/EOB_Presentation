@@ -1,4 +1,4 @@
-## Slajd 2 - Ира
+## Slajd 2
 
 Sekta to zamknięta grupa. Ona mocno uzależnia swoich członków psychicznie i finansowo. Na czele zawsze stoi charyzmatyczny lider. Jego słowo to prawo, nikt nie może go krytykować ani zadawać pytań.
 
@@ -9,7 +9,7 @@ To nie są tylko teorie. W 1978 roku w Jonestown lider sekty kazał ponad 900 os
 
 ---
 
-## Slajd 3 - Ира
+## Slajd 3
 
 Zanim przejdziemy do tematu sekt, warto zadać sobie pytanie: czym właściwie różni się religia od sekty?
 
@@ -25,7 +25,7 @@ Według badań ponad 75% Polaków uważa sekty za poważne zagrożenie społeczn
 
 ---
 
-## Slajd 4 - Ира
+## Slajd 4
 
 Dlaczego ludzie wpadają w sidła sekt?
 
@@ -37,7 +37,7 @@ Co ważne, wykształcenie nie chroni w pełni. W chwilach słabości rządzą em
 
 ---
 
-## Slajd 5 - Ира
+## Slajd 5
 
 Kiedy słyszymy słowo sekta, większość z nas wyobraża sobie jakieś stare filmy z lat 80. – ludzie w szatach, odprawiający dziwne rytuały w środku lasu. Przez to wydaje nam się, że ten problem już nie istnieje. Ale to błąd.
 
@@ -47,7 +47,7 @@ Co więcej, sekty przeniosły się do internetu. Szukają ludzi na TikToku, YouT
 
 ---
 
-## Slajd 6 - Ира
+## Slajd 6
 
 **Finanse**  
 Wiele sekt działa jak ukryty biznes. Gdy ktoś dołącza do grupy, stopniowo oddaje swój majątek — oszczędności, nieruchomości, dziedzictwo.
@@ -66,7 +66,7 @@ Osoba szczerze uważa się za wybraną, aby prowadzić innych. A jej narkystyczn
 
 ---
 
-## Slajd 7 - Игорь
+## Slajd 7
 
 Przejdźmy do osoby, bez której żadna sekta nie istnieje – do lidera, czyli guru. Choć to słowo oznacza „nauczyciela”, w tym świecie ma mroczne znaczenie.
 
@@ -76,7 +76,7 @@ Jednak w sekcie słowo lidera to absolut. Zwykły nauczyciel pozwala na dyskusj�
 
 ---
 
-## Slajd 8 - Ира
+## Slajd 8
 
 Sekty nie zaczynają od totalnej kontroli i manipulacji — to byłoby zbyt oczywiste. Zamiast tego działają powoli i sprytnie, przez cztery starannie zaplanowane fazy.
 
@@ -92,7 +92,7 @@ Najgorsze? Większość ofiar nie zdaje sobie sprawy, że to się w ogóle dziej
 
 ---
 
-## Slajd 9 - Игорь
+## Slajd 9
 
 Wiemy już, jak sekty manipulują ludźmi. Dlaczego jednak członkowie nie odchodzą, skoro wewnątrz nie czują się dobrze?  
 Choć nie ma tam fizycznego przymusu, niewidzialne kajdany okazują się najsilniejsze.
@@ -103,7 +103,7 @@ Drugą barierą są blokady praktyczne. Sekty celowo odcinają drogę ucieczki. 
 
 ---
 
-## Slajd 10 - Дима
+## Slajd 10
 
 Dziecko trafia do sekty na dwa sposoby: albo się w niej rodzi, albo jego rodzice wstępują do sekty i automatycznie wciągają je ze sobą.
 
@@ -115,7 +115,7 @@ Najgorsze jest to, że dzieci wychowane w sektach są odcięte od świata. Nie m
 
 ---
 
-## Slajd 11 - Игорь
+## Slajd 11
 
 Gdzie kończy się wolność religijna, a zaczyna naruszanie praw człowieka? Granica wolności jest jasna: prawo gwarantuje wolność wyznawania wiary, ale nie daje prawa do krzywdzenia innych. Te gwarancje prawne zapewniają nam wolność myśli, sumienia oraz prawo do swobodnej zmiany religii i odejścia z grupy.
 
@@ -125,7 +125,7 @@ Dlaczego państwo po prostu nie zakaże sekt? W demokratycznym kraju nie można 
 
 ---
 
-## Slajd 12 - Дима
+## Slajd 12
 
 Na koniec — i to jest szczególnie ważne dla dzisiejszych czasów — sekty przeniosły się do internetu.
 
@@ -137,7 +137,7 @@ Ale to nie wszystko. Sekty działają też w wirtualnych światach jak VRChat. G
 
 ---
 
-## Slajd 13 - Игорь
+## Slajd 13
 
 Jednym z najsilniejszych narzędzi kontroli w sektach jest strach, a nic nie przeraża bardziej niż wizja końca świata. Liderzy sekt apokaliptycznych najpierw sztucznie wywołują paraliżujący strach przed zagładą, a potem oferują siebie jako jedyny ratunek. Przeżyją tylko ci, którzy będą bezwzględnie posłuszni.
 
@@ -147,7 +147,7 @@ Jeszcze bardziej skrajny był atak Aum Shinrikyo w 1995 roku. Była to próba pr
 
 ---
 
-## Slajd 14 - Дима
+## Slajd 14
 
 Wyjście z sekty to zaledwie początek ogromnej walki, ponieważ te grupy niszczą człowieka na trzech poziomach.
 
@@ -159,7 +159,7 @@ I po trzecie: zdrowie fizyczne. Przez przymusowe posty, drastyczne diety i brak 
 
 ---
 
-## Slajd 15 - Игорь
+## Slajd 15
 
 Wyobraźcie sobie, że ktoś z waszych bliskich trafia do sekty. Intuicyjna reakcja to złość, chęć stawiania ultimatum i zmuszania do natychmiastowego wyjścia. Paradoksalnie, to najgorsze, co możecie zrobić, bo właśnie na to czeka lider sekty.
 
@@ -169,7 +169,7 @@ W rozmowie najlepiej sprawdza się zadawanie pytań, które budzą wątpliwości
 
 ---
 
-## Slajd 16 - Дима
+## Slajd 16
 
 Największą i najlepiej widoczną jest organizacja Świadków Jehowy — w Polsce liczy ok. 120 tysięcy członków. Są zarejestrowani jako związek wyznaniowy, więc formalnie mają pełne prawa. Ale ich doktryna zawiera cechy typowe dla sekt: zakaz kwestionowania władz organizacji, izolację od świata zewnętrznego, zakaz świąt, hymnu, transfuzji krwi.
 
@@ -179,7 +179,7 @@ Także w Polsce działa sieć pomocy dla ofiar sekt. Dominikański Ośrodek Info
 
 ---
 
-## Slajd 17 - Дима
+## Slajd 17
 
 Mówiliśmy już o prawach człowieka i o tym, jak brutalnie są one łamane w sektach. Teraz zobaczymy, jak poszczególne państwa przechodzą do konkretnych działań politycznych i policyjnych, bo podejście rządów na świecie znacznie się różni.
 
@@ -191,7 +191,7 @@ W Polsce nie mamy takich ustaw – działamy zwykłym kodeksem karnym, choć ju�
 
 ---
 
-## Slajd 18 - Карина
+## Slajd 18
 
 Zacznijmy od najbardziej tragicznej historii sektowej dwudziestego wieku – Świątyni Ludu, założonej w 1955 roku przez Jima Jonesa w Indianapolis.
 
@@ -203,7 +203,7 @@ Ale w latach siedemdziesiątych, gdy media zaczęły ujawniać nadużycia, Jones
 
 ---
 
-## Slajd 19 - Карина
+## Slajd 19
 
 Przejdźmy teraz do dwóch bardzo współczesnych sekt, które przez lata doskonale maskowały się jako legalnie działające instytucje. Pierwsza z nich to słynna na całym świecie Scjentologia, założona w 1954 roku przez L.Rona Hubbarda
 
@@ -213,7 +213,7 @@ Druga grupa to NXIVM, która z zewnątrz wyglądała jak ekskluzywna firma oferu
 
 ---
 
-## Slajd 20 - Карина
+## Slajd 20
 
 Teraz przyjrzymy się dwóm sektom, które pokazują, jak absurdalne i skrajne mogą być przekonania grup religijnych opartych na wierze w UFO.
 
@@ -225,7 +225,7 @@ Druga sekta to Raëlizm, według którego ludzkość została stworzona przez is
 
 ---
 
-## Slajd 21 - Карина
+## Slajd 21
 
 W historii można znaleźć przykłady, w które na pierwszy rzut oka aż trudno uwierzyć. Pokazują one, jak skrajne i absurdalne idee potrafią całkowicie zawładnąć ludzkim umysłem. Przyjrzymy się dwóm niezwykle wyrazistym przypadkom.
 
