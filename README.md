@@ -5,7 +5,11 @@
 ### [ALL PDF / PPTX FILES ARE IN RELEASES !!!](https://github.com/blestafist/EOB_Presentation/releases/tag/Release)
 
 
+---
 
+## Archive notes
+This repository has been archived 02.06.2026. I'll be no longer maintain this repository, because I've just presented this at school (get highest grade btw)
+You can use it as you wish, I'll be happy if you present it and contact me (to share your achievements). Thank you gyus
 
 
 A comprehensive educational presentation about cults, their mechanisms, and societal impact, created for the Civic Education (Edukacja Obywatelska) course.
