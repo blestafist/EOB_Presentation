@@ -1,22 +1,43 @@
-1. Приветственный слайд
-2. Что такое секты (определение, основные характеристики) 
-3. Разница между религией и сектой
-4. Почему люди верят в секты (психологические причины)
-5. Почему тема сект до сих пор актуальна
-6. Зачем вообще существуют секты (мотивация лидеров)
-7. Гуру (роль лидера в сектах)
-8. Рекрутация в секты (методы привлечения)
-9. Порог выхода из сект (психологические и практические барьеры)
-10. Дети в сектах (уязвимость и последствия)
-11. Секты и права человека
-12. Секты и цифровой век (интернет как инструмент рекрутации)
-13. Секты и апокалиптические идеи (конец света, рагнарёк и т.д.)
-14. Последствия для жертв (психологические, социальные, физические)
-15. Как помочь человеку выйти из секты (практические методы)
-16. Секты в Польше (локальный контекст)
-17. Отношение государства к сектам (законодательство и политика)
-18. Самые популярные секты в мире (слайд 1)
-19. Самые популярные секты в мире (слайд 2)
-20. Странные секты (слайд 1)
-21. Странные секты (слайд 2)
-22. Прощальный слайд
+1. Slajd powitalny
+
+2. Czym są sekty? (definicja i główne cechy)
+
+3. Różnica między religią a sektą
+
+4. Dlaczego ludzie wierzą w sekty? (przyczyny psychologiczne)
+
+5. Dlaczego temat sekt jest nadal aktualny?
+
+6. Dlaczego sekty w ogóle istnieją? (motywacje liderów)
+
+7. Guru – rola przywódcy w sektach
+
+8. Rekrutacja do sekt (metody pozyskiwania nowych członków)
+
+9. Próg wyjścia z sekty (bariery psychologiczne i praktyczne)
+
+10. Dzieci w sektach (podatność i konsekwencje)
+
+11. Sekty a prawa człowieka
+
+12. Sekty w erze cyfrowej (internet jako narzędzie rekrutacji)
+
+13. Sekty i idee apokaliptyczne (koniec świata, Ragnarök itp.)
+
+14. Konsekwencje dla ofiar (skutki psychologiczne, społeczne i fizyczne)
+
+15. Jak pomóc komuś wyjść z sekty? (praktyczne metody)
+
+16. Sekty w Polsce (kontekst lokalny)
+
+17. Stosunek państwa do sekt (ustawodawstwo i polityka)
+
+18. Najbardziej znane sekty na świecie (slajd 1)
+
+19. Najbardziej znane sekty na świecie (slajd 2)
+
+20. Dziwne sekty (slajd 1)
+
+21. Dziwne sekty (slajd 2)
+
+22. Slajd końcowy / Podziękowanie za uwagę
