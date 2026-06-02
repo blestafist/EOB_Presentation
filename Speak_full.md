@@ -11,17 +11,21 @@ To nie są tylko teorie. W 1978 roku w Jonestown lider sekty kazał ponad 900 os
 
 ## Slajd 3
 
-Zanim przejdziemy do tematu sekt, warto zadać sobie pytanie: czym właściwie różni się religia od sekty?
+Zanim przejdziemy do tematu sekt, warto zadać sobie pytanie: czym właściwie różni się religia od sekty? 
 
 Religia — czy to chrześcijaństwo, islam, buddyzm, czy inne — jest zazwyczaj systemem wierzeń otwartym na społeczeństwo. Możesz wierzyć, możesz wątpić, możesz odejść. Kościoły działają publicznie, ich doktryny są znane i dostępne. Religia zakłada też szacunek do innych ludzi, nawet tych, którzy nie należą do danej wspólnoty.
 
-Sekta natomiast — zwłaszcza tzw. sekta destrukcyjna — działa zupełnie inaczej. Izoluje swoich członków od rodziny i znajomych. Wymaga absolutnego posłuszeństwa wobec lidera. Ukrywa swoje prawdziwe cele — to, co widać z zewnątrz, często bardzo różni się od tego, co dzieje się w środku.
+Natomiast sekta to grupa społeczna która odłączyła się od większego ruchu, przyjmując własne zasady. 
 
 Protestanci byli kiedyś nazywani sektą przez Kościół katolicki. Islam ma sunnitów i szyitów, chrześcijaństwo ma baptystów i luteranów — to wszystko sekty w neutralnym znaczeniu tego słowa.
 
-Ale kiedy mówimy o 'kulcie' czy 'sekcie destrukcyjnej', mówimy o czymś zupełnie innym. To autorytarny reżim w kształcie piramidy, który wykorzystuje oszustwo w rekrutacji — ludziom NIE mówi się, czym grupa naprawdę jest, w co wierzy i czego będzie się od nich oczekiwać. Kluczowa różnica nie leży w przekonaniach religijnych, lecz w metodach działania: czy grupa szanuje wolność i godność człowieka, czy je niszczy.
+ sekta destrukcyjna — działa zupełnie inaczej. Izoluje swoich członków od rodziny i znajomych. Wymaga absolutnego posłuszeństwa wobec lidera. Ukrywa swoje prawdziwe cele — to, co widać z zewnątrz, często bardzo różni się od tego, co dzieje się w środku.
 
-Według badań ponad 75% Polaków uważa sekty za poważne zagrożenie społeczne — i nie bez powodu.
+To autorytarny reżim w kształcie piramidy, który wykorzystuje oszustwo w rekrutacji — ludziom NIE mówi się, czym grupa naprawdę jest, w co wierzy i czego będzie się od nich oczekiwać. Kluczowa różnica nie leży w przekonaniach religijnych, lecz w metodach działania: czy grupa szanuje wolność i godność człowieka, czy je niszczy.
+
+Według badań ponad 75% Polaków uważa sekty za poważne zagrożenie społeczne — i nie bez powodu
+
+
 
 ---
 
@@ -35,6 +39,8 @@ Poza tym życie stało się bardziej skomplikowane i nieprzewidywalne. Sekty daj
 
 Co ważne, wykształcenie nie chroni w pełni. W chwilach słabości rządzą emocje, nie rozum. Nawet inteligentni ludzie mogą „wyłączyć" krytyczne myślenie, gdy ktoś oferuje im przynależność i ochronę przed lękiem.
 
+
+
 ---
 
 ## Slajd 5
@@ -44,6 +50,8 @@ Kiedy słyszymy słowo sekta, większość z nas wyobraża sobie jakieś stare f
 Dzisiaj sekty wyglądają zupełnie inaczej i mają się bardzo dobrze. W Polsce działają setki takich grup, tylko świetnie się maskują. Często rejestrują się legalnie jako szkoły medytacji, fundacje, ośrodki rozwoju osobistego albo grupy coachingowe.
 
 Co więcej, sekty przeniosły się do internetu. Szukają ludzi na TikToku, YouTube czy przez zamknięte grupy na Facebooku. I najważniejsze – ofiarą wcale nie zostaje ktoś naiwny czy głupi. W sektach jest mnóstwo inteligentnych i wykształconych osób które zanajdują się w trudnym momencie życia.
+
+
 
 ---
 
@@ -129,9 +137,7 @@ Dlaczego państwo po prostu nie zakaże sekt? W demokratycznym kraju nie można 
 
 Na koniec — i to jest szczególnie ważne dla dzisiejszych czasów — sekty przeniosły się do internetu.
 
-Wyobraźcie sobie, że przeglądacie TikToka i trafiacie na profil 'Przebudź się — odkryj swoją duchową misję'. Algorytm chętnie poleca takie treści osobom, które szukają czegoś o samotności, depresji — bo to właśnie takie osoby są najłatwiejszym celem.
-
-Prawdziwy przykład: Twin Flames Universe — sekta założona w 2017 roku, działająca wyłącznie online przez YouTube i Facebook. Obiecywała znalezienie 'duchowej miłości życia'. Tysiące osób straciło pieniądze i zdrowie psychiczne.
+Pradziwy przykład: Twin Flames Universe — sekta założona w 2017 roku, działająca wyłącznie online przez YouTube i Facebook. Obiecywała znalezienie 'duchowej miłości życia'. Tysiące osób straciło pieniądze i zdrowie psychiczne.
 
 Ale to nie wszystko. Sekty działają też w wirtualnych światach jak VRChat. Grupa Dark Guild w VRChat zmuszała nastolatków do podpisywania 'kontraktów krwi', groziła im i manipulowała. Dopiero po śledztwie YouTubera sprawa wyszła na jaw.
 
