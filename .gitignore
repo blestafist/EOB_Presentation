@@ -1,0 +1,19 @@
+# macOS
+.DS_Store
+
+# Windows
+Thumbs.db
+
+# Temporary Microsoft Office files
+~$*
+
+# Environment variables
+.env
+
+# AI / tooling directories
+.claude/
+.ai/
+.github/
+
+# All JSON files
+*.json
